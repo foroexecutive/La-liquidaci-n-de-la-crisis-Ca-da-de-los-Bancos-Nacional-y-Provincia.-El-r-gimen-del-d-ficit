@@ -1,1 +1,2 @@
-# La-liquidaci-n-de-la-crisis-Ca-da-de-los-Bancos-Nacional-y-Provincia.-El-r-gimen-del-d-ficit
+# La-liquidación-de-la-crisis-Caída-de-los-Bancos-Nacional-y-Provincia.-El-régimen-del-déficit
+Los Bancos Nacional y Provincial experimentaron en los primeros meses de 1891 una seria amenaza. Los préstamos habían descendido pero los depósitos bajaban aún más. Inútiles fueron diversos recursos puestos en juego por el gobierno nacional; ellos fueron clausurados en abril de ese año casi contemporáneamente con la suspensión de pagos del servicio de cupones por parte del Hipotecario Nacional. Debe suponerse que la caída de los bancos oficiales había repercutido sobre los bancos particulares provocando la suspensión de pagos por parte de cinco casas de crédito.
